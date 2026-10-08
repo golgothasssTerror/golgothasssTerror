@@ -33,7 +33,7 @@ $\color{#626262}\textsf{BIO. }$
 $\color{#626262}\textsf{UGH.\ INFO.\ }$
   </summary>
 
-<sub>cuddle+hide always welcome! I love when people cuddle+hide with me! I'm very grateful if you do it. And one important details, ALWAYS WHISPER TO INTERACT (W2I). I will NOT talk to you in pub chat!</sub>
+<sub>cuddle+hide always welcome! I love when people cuddle+hide with me! I'm would be very grateful if you do it. And one important details, ALWAYS WHISPER TO INTERACT (W2I). I will NOT talk to you in pub chat!</sub>
 
 </details>
 <sub>Ask for links.</sub>
