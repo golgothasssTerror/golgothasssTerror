@@ -8,7 +8,7 @@ $\color{#626262}\textsf{CLICK\ HERE,\ IDIOT.\ }$
   </summary>
 
 <sub>Jake John or Karkat</sub> 
-️ ️ ️ ️ <sub>he him️ ️ isfp-t</sub>
+️ ️ ️ ️ <sub>he him️ ️ infp-t</sub>
   </p>
   <sub>I DON'T USE TONETAGS THAT MUCH, PLEASE TELL ME IF YOU'RE A PERSON THAT NEEDS TONETAGS.</sub>
 
