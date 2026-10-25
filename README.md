@@ -17,7 +17,7 @@ $\color{#626262}\textsf{CLICK\ HERE,\ IDIOT.\ }$
   <summary>
 $\color{#626262}\textsf{CLICK\ HERE\ TOO.\ }$
   </summary>
-  <sub>I like homestuck, eddsworld, madcom, regretevator, postal, etc. Please, ask more about my interests!</sub>
+  <sub>I like homestuck, eddsworld, madcom, regretevator, etc. Please, ask more about my interests!</sub>
 </details>
 <details>
   <summary>
